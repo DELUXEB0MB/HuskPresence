@@ -1,13 +1,17 @@
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/fblm2i.png"width="500" height="500">
+<img src="https://file.garden/aoXokxgw8mGCzSst/Untitled985_20260825002319.png"width="400" height="481">
   <br>
 <p align="center">
-  <img src="https://files.catbox.moe/4w0d5q.jpg"width="450" height="25">
+  <img src="https://file.garden/aoXokxgw8mGCzSst/ewdfef.gifv"width="400" height="25">
   <br>
   <p align="center">
-Art by me ☺ dats my husk sona ok?
+<i>$\color{#9326ff}{GLIDER}$ <i>$\color{#9326ff}{AND}$ <i>$\color{#9326ff}{(BAD)}$ <i>$\color{#9326ff}{SPIRIT}$ <i>$\color{#9326ff}{MAIN}$
+  <p align="center">
+  <i>$\color{#710ffa}{BIG}$ <i>$\color{#710ffa}{FAN}$ <i>$\color{#710ffa}{OF}$ <i>$\color{#710ffa}{HUSKS}$ <img src="https://files.catbox.moe/5tillr.gif"width="20" height="20">
       <p align="center">
-if u see this then that means i could be on #NULLSCAPE 
+<i>$\color{#5a00ff}{FEEL}$ <i>$\color{#5a00ff}{FREE}$ <i>$\color{#5a00ff}{TO}$ <i>$\color{#5a00ff}{INT/C+H!!!}$ <i>$\color{#5a00ff}{IM}$ <i>$\color{#5a00ff}{MOST}$ <i>$\color{#5a00ff}{LIKELY}$ <i>$\color{#5a00ff}{IN}$ <i>$\color{#5a00ff}{GAME}$
          <p align="center">
-   <img src="https://files.catbox.moe/ralad2.png"width="50" height="50">
+             <img src="https://file.garden/aoXokxgw8mGCzSst/ewdfef.gifv"width="400" height="25">
+           <p align="center">
+ <img src="https://file.garden/aoXokxgw8mGCzSst/ezgif.com-gif-maker(1).gif"width="500" height="190">
